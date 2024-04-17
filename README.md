@@ -1,1 +1,0 @@
-Halo ini adalah tugas raply
